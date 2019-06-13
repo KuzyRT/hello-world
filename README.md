@@ -1,2 +1,7 @@
 # hello-world
-Just another repository
+
+
+Hi World!
+
+KuzyRT Here POGU TEST POGU TEST POGU TEST POGU TEST POGU TEST
+Poggers in the chat lul
